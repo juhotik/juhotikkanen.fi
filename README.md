@@ -1,2 +1,0 @@
-juhotikkanen.fi
-===============
